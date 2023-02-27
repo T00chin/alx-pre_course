@@ -1,1 +1,1 @@
-I am confused
+I am on my own
